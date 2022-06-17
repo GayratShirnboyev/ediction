@@ -1,0 +1,1 @@
+Shirinboyev G'ayrat Samarandagi Codeschool markazika o'qiyman
